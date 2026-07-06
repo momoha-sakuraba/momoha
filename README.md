@@ -1,2 +1,2 @@
 # momoha
-この世界に、hello worldしに来た。
+13才　男子
